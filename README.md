@@ -1,1 +1,1 @@
-# Mobile-financial-assistant-for-ladiesobile-financial-assistant-for-ladies
+# Mobile-financial-assistant-for-ladies
